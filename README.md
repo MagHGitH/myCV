@@ -1,7 +1,7 @@
 # **CURRICULUM VITAE**
 ## **Maggie Hong**
 ### **BS Biology Student**
-Email: tunXXXXX@temple.edu
+Email: tun35763@temple.edu
 
 - Current Senior
 - Expected graduation: Spring 2024
